@@ -25,4 +25,4 @@ https://open.spotify.com/embed/playlist/7GRdn5GXVAoMLKIx7keQ4N
 - Les Hirondelles de Kaboul (*The Swallows of Kabul*) (2019) - Zabou Breitman - *Animation film: a young women in Kabul. Based on Yasmina Khadra novel*. 
 
 ## Books
-Besides the classics Alexandre Dumas, Emile Zola, Guy de Maupassant, there are tons of more recent french books I'd recommend, but that are not translated in English. If you want to read in french, feel free to ask, I'll be happy to share.
+Besides the classics (*Alexandre Dumas, Emile Zola, Guy de Maupassant*), there are tons of more recent french books I'd recommend, but that are not translated in English. If you want to read in french, feel free to ask, I'll be happy to share.
