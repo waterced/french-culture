@@ -24,6 +24,6 @@ https://open.spotify.com/embed/playlist/7GRdn5GXVAoMLKIx7keQ4N
 - Le dîner de con (*The Dinner Game*) (1998) - Francis Veber - *Comedy : "Pierre Brochant, a Parisian publisher, attends a weekly "idiots' dinner", where guests, who are modish, prominent Parisian businessmen, must bring along an "idiot", whom the other guests can ridicule. At the end of the dinner, the evening's "champion idiot" is selected."*
 - Les Hirondelles de Kaboul (*The Swallows of Kabul*) (2019) - Zabou Breitman - *Animation film: a young women in Kabul. Based on Yasmina Khadra novel*. 
 - Un monstre à Paris (*A monster in Paris*) (2011) -	Bibo Bergeron *Animation film, in Paris*
-- La Guerre des Boutons (*War of the Buttons*) (2011) -  Yann Samuell - *A "war of the buttons" takes place between the children of two rival villages*
+- La Guerre des Boutons (*War of the Buttons*) (2011) -  Yann Samuell - *A "war of the buttons" takes place between the children of two rival villages. A very nice comedy movie.*
 ## Books
 Besides the classics (*Alexandre Dumas, Emile Zola, Guy de Maupassant*), there are tons of more recent french books I'd recommend, but that are not translated in English. If you want to read in french, feel free to ask, I'll be happy to share.
